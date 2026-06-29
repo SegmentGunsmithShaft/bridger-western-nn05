@@ -1,4 +1,4 @@
-
+bridger western Script hidden is the best bridger western Script, featuring no cooldown and esp. Safe and powerful for all your needs.
 
 
 
